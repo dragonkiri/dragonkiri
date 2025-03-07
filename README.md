@@ -1,4 +1,4 @@
-:smile:AOBAA, me chamo Raphael marques, nos video-games tambem conhecido como Dragonkiri(nome do meu canal na twitch tambem).
+:smile:OLÁ, me chamo Raphael marques.
 
 :mortar_board:Atualmente estou cursando dois cursos na instintuiçao SENAC, no periodo matutino :sun_with_face: Analise e Desenvolvimento de Sistemas e no periodo noturno :full_moon: o projeto Transforme-se da instintuiçao Serasa com parceria do SENAC.
 
